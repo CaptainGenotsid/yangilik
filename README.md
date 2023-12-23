@@ -1,0 +1,2 @@
+# yangilik
+yangilik tutorial video
